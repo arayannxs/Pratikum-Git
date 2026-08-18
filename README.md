@@ -1,1 +1,1 @@
-Konzz
+Konz
